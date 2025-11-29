@@ -1,0 +1,1 @@
+# Yapay_Zek-_ve_Veri_Bilimi_1-odev
